@@ -1,0 +1,1 @@
+# Rotina9817_AnaliseDeCredito_Public
